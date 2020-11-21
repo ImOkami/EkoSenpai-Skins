@@ -12,4 +12,18 @@ If skins are missing/Links don't work, let me know by messaging me on discord. I
 # [WhiteCat(1.0)](https://skins.osuck.net/index.php?newsid=1107)
 ![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
 
+# [《CK》 Bacon boi 1.0](https://skins.osuck.net/index.php?newsid=1648)
+![](https://skins.osuck.net/uploads/posts/2020-09/1600513431_screenshot9556.jpg)
+
+# [JesusOmega『Planets』](https://skins.osuck.net/index.php?newsid=1489)
+![](https://skins.osuck.net/uploads/posts/2020-07/1594283495_4.jpg)
+
+# [Cozy Skin](https://skins.osuck.net/index.php?newsid=1256)
+![](https://skins.osuck.net/uploads/posts/2020-04/1586795293_4.jpg)
+
+# [WhiteCat(1.0)](https://skins.osuck.net/index.php?newsid=1107)
+![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
+
+# [WhiteCat(1.0)](https://skins.osuck.net/index.php?newsid=1107)
+![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
 
