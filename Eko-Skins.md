@@ -24,6 +24,6 @@ If skins are missing/Links don't work, let me know by messaging me on discord. I
 # [-  #N7 ☁ ケイデン ☁](http://www.mediafire.com/file/ns9qrtxsk4oqrjt/-__%2523N7_%25E2%2598%2581_%25E3%2582%25B1%25E3%2582%25A4%25E3%2583%2587%25E3%2583%25B3_%25E2%2598%2581.osk/file#N7+%E2%98%81+%E3%82%B1%E3%82%A4%E3%83%87%E3%83%B3+%E2%98%81.osk/file)
 ![](https://i.imgur.com/rArJz84.png)
 
-# [WhiteCat(1.0)](https://skins.osuck.net/index.php?newsid=1107)
-![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
+# [Gear Skin -1.0- (Light Blue & Magenta Duo)](https://skins.osuck.net/index.php?newsid=1403)
+![](https://skins.osuck.net/uploads/posts/2020-06/1592985518_screenshot8941.jpg)
 
