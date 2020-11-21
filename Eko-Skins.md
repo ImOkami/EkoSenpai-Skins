@@ -27,3 +27,11 @@ If skins are missing/Links don't work, let me know by messaging me on discord. I
 # [Gear Skin -1.0- (Light Blue & Magenta Duo)](https://skins.osuck.net/index.php?newsid=1403)
 ![](https://skins.osuck.net/uploads/posts/2020-06/1592985518_screenshot8941.jpg)
 
+# [-        # Umbre v1.0 『MK』 #        -](https://skins.osuck.net/index.php?newsid=1627)
+![](https://skins.osuck.net/uploads/posts/2020-09/1599492321_screenshot9373.jpg)
+
+# [-        # The Journey of Elaina 『MJ』 #        -](https://drive.google.com/file/d/1exJYm436Cy0Hr6clW72br03FKANtmyhF/view)
+![](https://i.imgur.com/LG2htBb.png)
+
+# [- 『CodeName∶ Bloo』 -](https://drive.google.com/file/d/1CXNBA3M_qIKpwWYp2oAC2RUjcW_QeWun/view)
+![](https://i.imgur.com/eOm2wSi.png)
