@@ -35,3 +35,6 @@ If skins are missing/Links don't work, let me know by messaging me on discord. I
 
 # [- 『CodeName∶ Bloo』 -](https://drive.google.com/file/d/1CXNBA3M_qIKpwWYp2oAC2RUjcW_QeWun/view)
 ![](https://i.imgur.com/eOm2wSi.png)
+
+# [KoaLigmaQ 1.0 (Koa)](https://mega.nz/folder/gWwVwKzR#2pwIsA4m_d2I0SfXikynnQ)
+![](https://i.imgur.com/hM00Zyr.png)
