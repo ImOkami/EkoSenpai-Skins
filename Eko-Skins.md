@@ -38,3 +38,6 @@ If skins are missing/Links don't work, let me know by messaging me on discord. I
 
 # [KoaLigmaQ 1.0 (Koa)](https://mega.nz/folder/gWwVwKzR#2pwIsA4m_d2I0SfXikynnQ)
 ![](https://i.imgur.com/hM00Zyr.png)
+
+# [# HatsuneMiku v1.0](https://mega.nz/file/kEliHRDS#IxwUZ2OyPlyIUAcZtHzfCNKqfuolZArgTUqSGY-NKYk)
+![](https://skins.osuck.net/uploads/posts/2021-04/1619611261_screenshot10135.jpg)
