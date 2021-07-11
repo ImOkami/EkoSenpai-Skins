@@ -41,3 +41,6 @@ If skins are missing/Links don't work, let me know by messaging me on discord. I
 
 # [# HatsuneMiku v1.0](https://mega.nz/file/kEliHRDS#IxwUZ2OyPlyIUAcZtHzfCNKqfuolZArgTUqSGY-NKYk)
 ![](https://skins.osuck.net/uploads/posts/2021-04/1619611261_screenshot10135.jpg)
+
+# [# - 『BlooMoon』 -](https://skins.osuck.net/index.php?newsid=1312)
+![](https://cdn.discordapp.com/attachments/793708594633637918/863573241947881482/screenshot239.jpg)
